@@ -24,7 +24,7 @@ if you have any addictions
 
  ✲ other than that that, int! ✲
  
-XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
+XXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
 </p>
  
 if you know : nso, md, pmmm
