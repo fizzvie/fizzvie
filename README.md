@@ -38,7 +38,7 @@ or if you are in those fandoms ,, absolutely interact! ,,
 note: i'm an introvert so i won't int first unless you seem really kind and cool ꏿ⁠﹏⁠ꏿ
 
 // I think that's all :3 //
-![image alt](https://github.com/fizzvie/angelicfeathers/blob/0d5875c297177bf6cb8c59faa2acf04783b614af/2bb900dd5687868168652708b24d2346.jpg)
+![image alt](https://github.com/fizzvie/fizzvie/blob/cda48759223c7479145729ccec5cc0b45c18e06e/2bb900dd5687868168652708b24d2346.jpg)
 
 ♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪
 
