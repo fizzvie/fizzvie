@@ -1,16 +1,47 @@
-## Hi there 👋
+<p align="center">✲༺ hello! ༻✲</p>
+ 
+![image alt](https://github.com/angelicfeathers/angelicfeathers/blob/507365e88b71ca990f0b2331a04a330550cb190e/82887a2f46069a15ae486534c89519da.jpg)
 
-<!--
-**fizzvie/fizzvie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">dni:
+nazis
+if u make jokes abt
+9/11, holocaust, etc.
+pro/darkshippers,
+homo/transphobes,
+racists,
+insensitive people,
+misogynysts,
+if you have any addictions
+(hope u get better, but dni :/)</p>
 
-Here are some ideas to get you started:
+<p align="center"XXXXXXXXXXXXXXXXXXXXXXXXXXXXX
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+    guess that's all!
+    
+══════════༺❀༻══════════
+</p>
+
+
+<p align="center"XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
+
+ ✲ other than that that, int! ✲
+ 
+XXXXXXXXXXXXXXXXXXXXXXXXXXXXX
+</p>
+ 
+if you know : nso, md, pmmm
+hb + hh, tadc, bs, crk, dw
+lacey's games, fnaf, touhou,
+horse paradise, wildcraft
+( + roblox games) ↓
+sewh, ftf, Creatures of Sonaria, elimination, project: rusher... + more random things
+or if you are in those fandoms ,, absolutely interact! ,,
+
+note: i'm an introvert so i won't int first unless you seem really kind and cool ꏿ⁠﹏⁠ꏿ
+
+// I think that's all :3 //
+![image alt](https://github.com/fizzvie/angelicfeathers/blob/0d5875c297177bf6cb8c59faa2acf04783b614af/2bb900dd5687868168652708b24d2346.jpg)
+
+♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪
+
+(i'm sorry this looks better on mobile 💔)
