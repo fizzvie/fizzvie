@@ -12,11 +12,9 @@ misogynysts,
 if you have any addictions
 (hope u get better, but dni :/)</p>
 
-<p align="center"XXXXXXXXXXXXXXXXXXXXXXXXXXXXX
-
     guess that's all!
     
-═══════════༺❀༻═══════════
+<p align="center"═══════════༺❀༻═══════════
 </p>
 
 
