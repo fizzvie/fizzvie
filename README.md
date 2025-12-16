@@ -1,7 +1,7 @@
 <p align="center">✲༺ hello! ༻✲</p>
 
 <p align="center">dni:
-nazis
+nazis,
 if u make jokes abt
 9/11, holocaust, etc.
 pro/darkshippers,
@@ -10,7 +10,7 @@ racists,
 insensitive people,
 misogynysts,
 if you have any addictions
-(hope u get better, but dni :/)</p>
+</p>
 
     guess that's all!
     
