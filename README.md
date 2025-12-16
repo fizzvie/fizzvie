@@ -26,12 +26,13 @@ if you have any addictions
 </p>
  
 if you know : nso, md, pmmm
-hb + hh, tadc, bs, crk, dw
-lacey's games, fnaf, touhou,
+hb + hh, tadc, bs, crk, dw,
+lacey's games, fnaf,
 horse paradise, wildcraft
 ( + roblox games) ↓
-sewh, ftf, Creatures of Sonaria, elimination, project: rusher... + more random things
-or if you are in those fandoms ,, absolutely interact! ,,
+sewh, ftf, Creatures of Sonaria, elimination, project: rusher,
+crown tag, + more random things
+or if you're in those fandoms definitely interact!
 
 note: i'm an introvert so i won't int first unless you seem really kind and cool ꏿ⁠﹏⁠ꏿ
 
