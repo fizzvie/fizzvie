@@ -25,10 +25,10 @@ if you have any addictions
 <p align="center"XXXXXXXXXXXXXXXXXXXXXXXXXXXXXX
 </p>
  
-if you know : nso, md, pmmm
+if you know : nso, md, pmmm,
 hb + hh, tadc, bs, crk, dw,
 lacey's games, fnaf,
-horse paradise, wildcraft
+horse paradise, wildcraft /
 ( + roblox games) ↓
 sewh, ftf, Creatures of Sonaria, elimination, project: rusher,
 crown tag, + more random things
