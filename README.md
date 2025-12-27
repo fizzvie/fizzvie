@@ -41,8 +41,3 @@ note: i'm an introvert so i won't int first unless you seem really kind and cool
 
 ![image alt](https://github.com/fizzvie/fizzvie/blob/cda48759223c7479145729ccec5cc0b45c18e06e/2bb900dd5687868168652708b24d2346.jpg)
 </p>
-
-<p align="center"♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪𝄞♪
-    </p>
-
-(i'm sorry this looks better on mobile 💔)
