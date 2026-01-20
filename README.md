@@ -3,5 +3,4 @@
 <p align="center">
 hi :D check out all links!
 
-![image alt](https://media.tenor.com/q0zcs7G7FogAAAAM/galassia-galassie.gif)
-</p>
+<p align="center">![image alt](https://media.tenor.com/zE4ozkXHGWAAAAAM/sylveon.gif)</p>
