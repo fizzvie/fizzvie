@@ -1,7 +1,2 @@
-<p align="center">✲༺ hello! ༻✲</p>
-
-<p align="center">
-hi :D check out all links!
-
-<p align="center">
+<p align="center">✲༺ hello! ༻✲
   ![image alt](https://media.tenor.com/zE4ozkXHGWAAAAAM/sylveon.gif)</p>
