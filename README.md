@@ -3,5 +3,5 @@
 <p align="center">
 hi :D check out all links!
 
-![image alt](https://github.com/fizzvie/fizzvie/blob/cda48759223c7479145729ccec5cc0b45c18e06e/2bb900dd5687868168652708b24d2346.jpg)
+![image alt](https://media.tenor.com/q0zcs7G7FogAAAAM/galassia-galassie.gif)
 </p>
